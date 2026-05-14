@@ -1,8 +1,7 @@
 # Arcadia
+## Notatki Graczy
 
 To jest Vault obsidian dla sesji TTJRPG ARCADIA 
-# Notatki Graczy
-
 
 ---
 
