@@ -37,19 +37,6 @@ Dawniej znany jako władca Atmery. Dziś zapomniany przez ludzkość, gdy zosta�
 
 --
 
-## Cele: Wytworzenie perfekcyjnego soku z Owocu Adama. Którego bardzo bardzo dawno temu skosztował Albert
-
-Albert Zaczął się nudzić. Ludzi których przemienił w swoich pobratymców. Okazali się nie być odporni na starość, mimo tego mogli przedłużać swe życie. Tak oto na tym świecie pojawili się nieumarli. Albert  próbuje stworzyć sobie kompana na wieki, W głębi serca Albert czuje się samotny widzi jak każdy przyjaciel starzeje  się i zamienia się w monstrum lub umiera.    
-### Drink Adama
-#### Składniki:
-- Krew pradawnego wampira
-- Owoc Adama (owoc grzechu) 
-- Pomarańcza Czerwono-Brodego
-- Podniebna Sól
-- Cytryna Pierwszego Sukuba
-- ???????
-#### Efekt:
-Osoba co wypije ten trunek stanie się odporna na starość i choroby oraz osiągnie niesamowitą regeneracje oraz umiejętność pochłaniania Energi życiowej od innych istot. Zmienia się w Prawdziwego Wampira (Króla nie umarłych).
 
 
 ---
