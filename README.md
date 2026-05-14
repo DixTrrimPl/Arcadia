@@ -1,4 +1,4 @@
 # Arcadia
 
-To jest Voult obsydiana dla sesji TTRPG ARCADIA 
+To jest Voult obsydiana dla sesji TTJRPG ARCADIA 
 # Notatki Graczy
