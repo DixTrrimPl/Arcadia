@@ -36,8 +36,3 @@ Dawniej znany jako władca Atmery. Dziś zapomniany przez ludzkość, gdy zosta�
 ## Relacje z innymi:
 
 ---
-
-
-
----
-
